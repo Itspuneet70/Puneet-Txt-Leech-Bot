@@ -19,12 +19,12 @@ Copyright ©️ PUNEET PARASHAR
 </b>
 </details>
 
-## About Owner 
+## About Owner @Its_Puneet_70
 
 <b><details><summary>Tap On Me For See Details Of Owner</summary>
 
 - YouTube Channel :
-- Telegram Channel : 
+- Telegram Channel : @Its_Puneet_70
 - Contact Link 
 - Instagram Id LinK
 
@@ -32,7 +32,7 @@ Copyright ©️ PUNEET PARASHAR
 </details>
 
 
-### Copyright ©️ 
+### Copyright ©️  Puneet Parashar
 
 <b>Selling This Repo Or Code Of This Repo For Money Is Strictly Prohibited 🚫</b>
 
