@@ -1,4 +1,4 @@
-# Don't Remove Credit Tg - @Professor_70
+# Don't Remove Credit Tg - @Its_Puneet_70
 # Subscribe YouTube Channel 
 # Ask Doubt on telegram @Professo_70
 
